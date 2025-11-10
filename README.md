@@ -1,1 +1,0 @@
-# AdamBedard.github.io
